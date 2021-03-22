@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bibzou
+- 👀 I’m interested in trading, cryptocurrencies and machine learning
+- 🌱 I’m currently learning every day
